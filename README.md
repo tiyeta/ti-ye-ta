@@ -1,1 +1,0 @@
-# ti-ye-ta tiyeta
